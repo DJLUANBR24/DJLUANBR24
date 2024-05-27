@@ -1,16 +1,18 @@
-## Hi there 👋
+### BEM VINDO 🖤
 
-<!--
-**DJLUANBR24/DJLUANBR24** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+MEU NOME É LUAN ROMERO AMORIM 🧑🏻
+luanamorim2406@gmail.com
 
-Here are some ideas to get you started:
+- BRASILEIRO 🟩🟨🟦
+  
+- AMO ANIMAIS 🐶🐱
+  
+- ADORO OUVIR TODO TIPO DE MUSICA 🎶
+  
+- CÂNCERIANO ♋
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+- ASSISTO FILMES,SÉRIES E ANIMES 🎞
+
+![](https://media1.tenor.com/m/BWk4_NBCmtgAAAAC/one-piece.gif)
+
+- AMO VIDEOGAMES 🎮🕹
